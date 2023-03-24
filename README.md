@@ -14,7 +14,7 @@
 - 📫 How to reach me **ferdiansyah140805@gmail.com**
 
 - ⚡ Fun fact **i met the best girl in the world**
-- ![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
+- ![Alt Text]([https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif](https://tenor.com/view/kanon-shibuya-sayuri-date-love-live-liella-love-live-superstar-gif-20226383))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
