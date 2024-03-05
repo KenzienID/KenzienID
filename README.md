@@ -8,7 +8,7 @@
 
 ## Count
 
-![:name](https://count.getloli.com/get/@alikia2x)
+![:name](https://moe-counter.glitch.me/get/@lavacasted?theme=gelbooru-h)
 
 ## Technology Stack
 
