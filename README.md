@@ -34,4 +34,4 @@
 | Method | Info |
 | ------ | ---- |
 
-| E-Mail | [contact@ferdiansyah.gmailcom](mailto:contact@ferdiansyah140805@gmail.com) |
+| E-Mail | ![contact@ferdiansyah.gmailcom](mailto:contact@ferdiansyah140805@gmail.com) |
