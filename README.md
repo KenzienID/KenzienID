@@ -2,7 +2,7 @@
     ✨ wassup ✨<br>
     ✨ I embody the leisurely cat, caring for others' feelings. I avoid conflicts, preferring serene connections, for a tranquil existence ✨
 </h1>
-
+!!!!!!!THIS ACC HAS BEEN FREEZE OUT!!!!!!
 **Hi. I'm KenzienID, a post school person that doesnt love coding and shit
 
 
